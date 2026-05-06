@@ -74,6 +74,7 @@ Diese Leute haben viel mehr als den Standardpreis ausgegeben und mir einen **ung
 
 **Mai 2026**
 
+- 🇺🇸&nbsp;Iliana - "i <3 mac mouse fix"
 - 🇩🇪&nbsp;Benedict&nbsp;Müller
 - 🇨🇦&nbsp;Ruben&nbsp;Ferrer
 - 🇹🇭&nbsp;Valad&nbsp;Saneeh - "Thanks for making this app!"

@@ -74,6 +74,7 @@ Tito lidé utratili mnohem víc, než je standardní cena, a pohostili mě **Neu
 
 **květen 2026**
 
+- 🇺🇸&nbsp;Iliana - "i <3 mac mouse fix"
 - 🇩🇪&nbsp;Benedict&nbsp;Müller
 - 🇨🇦&nbsp;Ruben&nbsp;Ferrer
 - 🇹🇭&nbsp;Valad&nbsp;Saneeh - "Thanks for making this app!"
