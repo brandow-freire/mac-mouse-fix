@@ -74,6 +74,7 @@ Estas personas gastaron mucho más que el precio estándar y me invitaron un **B
 
 **mayo 2026**
 
+- 🇩🇪&nbsp;Benedict&nbsp;Müller
 - 🇨🇦&nbsp;Ruben&nbsp;Ferrer
 - 🇹🇭&nbsp;Valad&nbsp;Saneeh - "Thanks for making this app!"
 - 🇸🇰&nbsp;Mario&nbsp;Zila

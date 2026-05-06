@@ -80,6 +80,7 @@ These people spent a lot more than the standard price and treated me to an **Inc
 
 **5월 2026**
 
+- 🇩🇪&nbsp;Benedict&nbsp;Müller
 - 🇨🇦&nbsp;Ruben&nbsp;Ferrer
 - 🇹🇭&nbsp;Valad&nbsp;Saneeh - "Thanks for making this app!"
 - 🇸🇰&nbsp;Mario&nbsp;Zila
