@@ -74,6 +74,7 @@ Estas personas gastaron mucho más que el precio estándar y me invitaron un **B
 
 **mayo 2026**
 
+- 🇧🇲&nbsp;Jason&nbsp;Kyme
 - 🇦🇹&nbsp;Xiao&nbsp;Li
 - 🇺🇸&nbsp;Iliana - "i <3 mac mouse fix"
 - 🇩🇪&nbsp;Benedict&nbsp;Müller
