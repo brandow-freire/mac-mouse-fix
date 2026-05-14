@@ -74,6 +74,7 @@ Tito lidé utratili mnohem víc, než je standardní cena, a pohostili mě **Neu
 
 **květen 2026**
 
+- 🇨🇦&nbsp;Kanjo&nbsp;Ca - "Close to perfection !"
 - 🇨🇭&nbsp;Daniel&nbsp;Steiner - "Have fun"
 - 🇧🇲&nbsp;Jason&nbsp;Kyme
 - 🇦🇹&nbsp;Xiao&nbsp;Li

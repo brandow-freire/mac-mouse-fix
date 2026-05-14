@@ -80,6 +80,7 @@ These people spent a lot more than the standard price and treated me to an **Inc
 
 **maggio 2026**
 
+- 🇨🇦&nbsp;Kanjo&nbsp;Ca - "Close to perfection !"
 - 🇨🇭&nbsp;Daniel&nbsp;Steiner - "Have fun"
 - 🇧🇲&nbsp;Jason&nbsp;Kyme
 - 🇦🇹&nbsp;Xiao&nbsp;Li
