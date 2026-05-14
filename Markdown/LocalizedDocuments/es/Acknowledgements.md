@@ -74,6 +74,7 @@ Estas personas gastaron mucho más que el precio estándar y me invitaron un **B
 
 **mayo 2026**
 
+- 🇫🇷&nbsp;T2
 - 🇨🇦&nbsp;Kanjo&nbsp;Ca - "Close to perfection !"
 - 🇨🇭&nbsp;Daniel&nbsp;Steiner - "Have fun"
 - 🇧🇲&nbsp;Jason&nbsp;Kyme

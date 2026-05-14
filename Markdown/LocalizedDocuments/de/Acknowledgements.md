@@ -74,6 +74,7 @@ Diese Leute haben viel mehr als den Standardpreis ausgegeben und mir einen **ung
 
 **Mai 2026**
 
+- 🇫🇷&nbsp;T2
 - 🇨🇦&nbsp;Kanjo&nbsp;Ca - "Close to perfection !"
 - 🇨🇭&nbsp;Daniel&nbsp;Steiner - "Have fun"
 - 🇧🇲&nbsp;Jason&nbsp;Kyme

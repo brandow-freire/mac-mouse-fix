@@ -80,6 +80,7 @@ Bu kişiler standart fiyattan çok daha fazlasını harcayarak bana **muhteşem 
 
 **Mayıs 2026**
 
+- 🇫🇷&nbsp;T2
 - 🇨🇦&nbsp;Kanjo&nbsp;Ca - "Close to perfection !"
 - 🇨🇭&nbsp;Daniel&nbsp;Steiner - "Have fun"
 - 🇧🇲&nbsp;Jason&nbsp;Kyme
